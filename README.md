@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chitsidzo-dengura
-- 👀 I’m interested in football and I support Leicester City. 
+- 👀 I’m interested in football and I support Arsenal. 
 - 🌱 I’m currently learning Actuarial Science.
 - 💞️ I’m looking to collaborate on various R projects.
 - 📫 How to reach me via email: chitsidzo.dengura@students.mq.edu.au
